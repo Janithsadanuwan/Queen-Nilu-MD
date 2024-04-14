@@ -14,7 +14,7 @@
 WHATSAPP BOT BY @Janithsadanuwan
 Helpers - @sanuwanofficial
         - @nimesh-official
-WHATSAPP - 94767438882
+WHATSAPP - 94768725104
 SUPPORT GROUP - https://t.me/QueenNilu
 YOUTUBE - http://youtube.com/janithsadanuwan
 
